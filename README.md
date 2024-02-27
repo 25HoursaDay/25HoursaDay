@@ -4,6 +4,4 @@ I **do not** support, participate in, or produce anything related to academic mi
 
 I **do** support the archival and documentation of media and history.
 
-I **do not** support stealing from small studios, individuals, or indepentant creators.
-
-I ***do** not* ;) support stealing from greedy corporations, massive game studios, and exploitive individuals.
+I **do not** support stealing from small studios, individuals, or indepentant creators, but I'll look in the other direction if it's from greedy corporations, massive game studios, or exploitive individuals.
